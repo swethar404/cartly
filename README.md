@@ -98,7 +98,8 @@ Screenshots will be added in future updates.
 
 Computer Science Engineering (Artificial Intelligence & Machine Learning)
 
-LinkedIn: https://www.linkedin.com/in/swetha-rajasekaran-42ba4b2a3
+LinkedIn: www.linkedin.com/in/swetharajasekaran
+
 
 Email: swetharajasekaran404@gmail.com
 
